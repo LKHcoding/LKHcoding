@@ -5,7 +5,7 @@
 
 - 💻   **I'm Front-End Developer**    
 
- - 🚀  **I'm working in South Korea Seoul**
+ - 🚀  **I'm working in Seoul - South Korea**
 
 ---
 
